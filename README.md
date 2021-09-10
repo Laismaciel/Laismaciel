@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Laismaciel
+- 👋 Hi, I’m @Laismaciel, I'm Tech Recruiter
 - 👀 I’m interested in developers
-- 📫 How to reach me lais.martinho@gruposelecionar.com.br 
+- 📫 How to reach me lais.martinho@gruposelecionar.com.br
